@@ -1,0 +1,1 @@
+# idTansanStore-Ind
